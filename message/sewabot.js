@@ -7,7 +7,7 @@ Berikut adalah list harga untuk sewa botz
 *┴*
 *│▸* 2 hari = 2k         
 *│▸* 7 hari = 5k         
-*│▸* permanen = 10k                          
+*│▸* permanen = 35k                          
 *┬*
 *╰────────────[*
 
